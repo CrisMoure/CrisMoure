@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @CrisMoure
 - 🚨 Cristina Moure Feijoó 
-- 🧑‍💻 E-mail: cmoure@educa.madrid.org
+- 👩🏻‍💻 E-mail: cmoure@educa.madrid.org
